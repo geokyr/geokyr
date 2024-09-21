@@ -1,1 +1,1 @@
-# Hello. I'm George Kyriakopoulos! 👋
+# Hello. I'm George Kyriakopoulos!
